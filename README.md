@@ -13,5 +13,5 @@ We went to Kerala tour sometime back in the past.
 Here are few pics captured in Kerala
 
 **Botanical garden**
-![Botanical Garden](botanical_garden.jpg)
+![Botanical Garden](Botanical_garden.jpg)
 
