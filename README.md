@@ -15,15 +15,3 @@ Here are few pics captured in Kerala
 **Botanical Garden**
 ![Botanical Garden](Botanical_G2.jpg)
 
-**Coonoor**
-![Trian Trip in Coonoor](Coonoor.jpg)
-
-**Tea Estate**
-![Tea Estate](Tea_Estate.jpg)
-
-**Water Flows**
-![Water falls](Water_falls.jpg)
-![Water Flow](Water_Flow.jpg)
-
-**Sixth Mile Shooting Spot**
-![Sixth Mile Shooting Spot](Sixth_Mile_Shooting_Spot.jpg)
