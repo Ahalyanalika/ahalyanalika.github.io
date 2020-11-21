@@ -12,6 +12,7 @@ We went to Kerala tour sometime back in the past.
 
 Here are few pics captured in Kerala
 
-**Botanical Garden**
-![Botanical Garden](Botanical_G2.jpg)
+**Coonoor**
+![Trian Trip in Coonoor](Coonoor.jpg)
+
 
