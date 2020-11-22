@@ -12,7 +12,14 @@ We went to Kerala tour sometime back in the past.
 
 Here are few pics captured in Kerala
 
-**Coonoor**
+**Coonoor**     
+
 ![Trian Trip in Coonoor](Coonoor.jpg)
+
+**Tea_Estate**     
+
+![Tea Estate](Tea_Estate.jpg)
+
+
 
 
